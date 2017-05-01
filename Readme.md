@@ -36,11 +36,11 @@ The neighbours like to come over for games
 
 We could rent a place in the mountains
 
-![mountains](images/Whatsapp the italian.jpeg)
+![mountains](images/WhatsApp the italian.jpeg)
 
 The humans are welcoming and wonderful!
 
-![eye patch](images/Whatsapp tea time.jpeg)
+![eye patch](images/WhatsApp tea time.jpeg)
 
 ---
 
